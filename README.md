@@ -1,0 +1,1 @@
+Макет: https://dribbble.com/shots/16297494-Landing-Page
